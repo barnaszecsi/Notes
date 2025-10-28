@@ -39,7 +39,7 @@
 
 ### Clean the laces
 
-1. Soak the laces in warm water with liquid soap and brush it with nubuk brush `hard side`
+1. Soak the laces in hot/warm water with washing liquide for 5 minutes and brush it with nubuk brush `hard side`
 
 ### Brushing suede
 
